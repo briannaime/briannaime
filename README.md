@@ -1,0 +1,3 @@
+- hi ! my name is brianna .
+- i am attending HPU and getting my BS in CSCI !
+- my discord is banananana#9555 !
